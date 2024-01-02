@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **ukkasnaina99@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-w-GSs0fett0bY_G0GsOEWM_7MEjN33t/view?usp=drive_link](https://drive.google.com/file/d/1-w-GSs0fett0bY_G0GsOEWM_7MEjN33t/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1deikFHwijtGvz0Ic0u4rCS-VVKHBODZV/view?usp=drive_link](https://drive.google.com/file/d/1deikFHwijtGvz0Ic0u4rCS-VVKHBODZV/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
